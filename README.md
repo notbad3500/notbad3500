@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @notbad3500
+- 👀 I’m interested in Java and Arduinos
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on new projects
+- 📫 How to reach me: instagram.com/notbad3500
